@@ -7,4 +7,5 @@ and to be used on social media.
 
 * Alex Weeks
 
+* Kwadwo Asamoa
 
