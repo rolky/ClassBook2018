@@ -7,6 +7,8 @@ and to be used on social media.
 
 * Alex Weeks
 
+* Emerald Adjei
+
 * Anna Evans
 
 * Sammy
@@ -19,7 +21,10 @@ and to be used on social media.
 
 * bill
 
-*samuel bartels
+* samuel bartels
+
+* Archie
 
 * Esther
 
+* Robert Yeboah
