@@ -7,7 +7,19 @@ and to be used on social media.
 
 * Alex Weeks
 
+* Sammy
+
+* Vincent Aduuna
+
+* Isaac Sai
+
+* Bernard Atiemo Asare
+
 * bill
 
+
 * Archie
+
+* Esther
+
 
