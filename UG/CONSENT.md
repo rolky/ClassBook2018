@@ -7,6 +7,8 @@ and to be used on social media.
 
 * Alex Weeks
 
+* Isaac Sai
+
 * Bernard Atiemo Asare
 
 * bill
