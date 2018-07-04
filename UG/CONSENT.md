@@ -7,6 +7,8 @@ and to be used on social media.
 
 * Alex Weeks
 
+* Sammy
+
 * Vincent Aduuna
 
 * Isaac Sai
@@ -16,3 +18,4 @@ and to be used on social media.
 * bill
 
 * Esther
+
