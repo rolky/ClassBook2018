@@ -7,6 +7,8 @@ and to be used on social media.
 
 * Alex Weeks
 
+* Vincent Aduuna
+
 * Isaac Sai
 
 * Bernard Atiemo Asare
