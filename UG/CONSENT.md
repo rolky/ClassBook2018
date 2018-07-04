@@ -8,3 +8,7 @@ and to be used on social media.
 * Alex Weeks
 
 * Bernard Atiemo Asare
+
+* bill
+
+* Esther
