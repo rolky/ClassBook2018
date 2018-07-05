@@ -7,6 +7,10 @@ and to be used on social media.
 
 * Alex Weeks
 
+* Kwadwo Asamoa
+
+* Emerald Adjei
+
 * Anna Evans
 
 * Sammy
@@ -19,9 +23,15 @@ and to be used on social media.
 
 * bill
 
+* Osei Kwadwo
+
+* samuel bartels
 
 * Archie
 
 * Esther
 
+* Richmond
+
 * Robert Yeboah
+
