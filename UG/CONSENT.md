@@ -7,6 +7,8 @@ and to be used on social media.
 
 * Alex Weeks
 
+* Anna Evans
+
 * Sammy
 
 * Vincent Aduuna
@@ -16,6 +18,9 @@ and to be used on social media.
 * Bernard Atiemo Asare
 
 * bill
+
+
+* Archie
 
 * Esther
 
