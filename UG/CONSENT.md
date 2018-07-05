@@ -9,6 +9,12 @@ and to be used on social media.
 
 * Anna Evans
 
+* Sammy
+
+* Vincent Aduuna
+
+* Isaac Sai
+
 * Bernard Atiemo Asare
 
 * bill
