@@ -23,6 +23,8 @@ and to be used on social media.
 
 * bill
 
+* Osei Kwadwo
+
 * samuel bartels
 
 * Archie
