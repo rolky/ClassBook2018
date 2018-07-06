@@ -21,6 +21,8 @@ and to be used on social media.
 
 * bill
 
+* samuel bartels
+
 * Archie
 
 * Esther
