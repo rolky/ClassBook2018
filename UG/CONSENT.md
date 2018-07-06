@@ -9,4 +9,20 @@ and to be used on social media.
 
 * Emerald Adjei
 
+* Anna Evans
 
+* Sammy
+
+* Vincent Aduuna
+
+* Isaac Sai
+
+* Bernard Atiemo Asare
+
+* bill
+
+* Archie
+
+* Esther
+
+* Robert Yeboah
