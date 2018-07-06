@@ -31,6 +31,8 @@ and to be used on social media.
 
 * Esther
 
+* Angelina
+
 * Richmond
 
 * Robert Yeboah
