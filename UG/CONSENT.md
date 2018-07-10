@@ -9,4 +9,33 @@ and to be used on social media.
 
 * Patrick Tecku K. Makafui
 
+* Kwadwo Asamoa
+
+* Emerald Adjei
+
+* Anna Evans
+
+* Sammy
+
+* Vincent Aduuna
+
+* Isaac Sai
+
+* Bernard Atiemo Asare
+
+* bill
+
+* Osei Kwadwo
+
+* samuel bartels
+
+* Archie
+
+* Esther
+
+* Angelina
+
+* Richmond
+
+* Robert Yeboah
 
