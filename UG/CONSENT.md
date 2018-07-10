@@ -7,6 +7,8 @@ and to be used on social media.
 
 * Alex Weeks
 
+* Patrick Tecku K. Makafui
+
 * Kwadwo Asamoa
 
 * Emerald Adjei
